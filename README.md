@@ -1,1 +1,1 @@
-# lolsports.com
+# Adequate
