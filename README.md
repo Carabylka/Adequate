@@ -1,1 +1,1 @@
-# lolesports.com
+# lolsports.com
